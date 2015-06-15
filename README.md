@@ -1,2 +1,6 @@
-# Kelompok2
-projek RPL kelompok 2
+syamsul kamal 1308107010040
+fika rasita sari 130817010032
+nur atika suri 1308107010021
+maulana 1308107010001
+sri widianalisa 1308107010017
+lulu huril in 1308107010018
